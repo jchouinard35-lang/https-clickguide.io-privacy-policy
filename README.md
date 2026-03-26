@@ -1,0 +1,1 @@
+# https-clickguide.io-privacy-policy
